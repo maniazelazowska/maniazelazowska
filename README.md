@@ -1,8 +1,8 @@
 # <p align="center">*"No matter where you go, everyone’s connected."*</p>
 
 - 🌑 working on everything but my field of expertise.
-- 🌒 learning python/git/linux.
-- 🌓 speaking pl・en・日本・한국
+- 🌒 learning python/working on my c++ skills.
+- 🌓 speaking PL・EN・日本・한국
 - 🌔 great fan of serial experiements lain.
 - 🌕 she/her, he/him, whichever you prefer.
 - 🌖 ~~行方不明者~~
