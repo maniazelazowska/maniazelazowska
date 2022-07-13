@@ -7,6 +7,6 @@
 - 🌕 she/her, he/him, whichever you prefer.
 - 🌖 ~~行方不明者~~
 
-<sub>*People only have substance within the memories of other people.*</sub>
+### <sub>*People only have substance within the memories of other people.*</sub>
 
 
