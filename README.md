@@ -4,7 +4,7 @@
 - 🌒 learning python.
 - 🌓 speaking [ PL・EN ] learning [ 日本・한국 ].
 - 🌔 great fan of serial experiements lain.
-- 🌕 she/her, he/him, whichever you prefer.
+- 🌕 japanese studies major.
 - 🌖 ~~行方不明者~~
 
 ### <p align="center"><sub>*People only have substance within the memories of other people.*</sub></p>
